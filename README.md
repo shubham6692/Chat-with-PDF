@@ -1,2 +1,11 @@
 # Chat-with-PDF
 
+![image](https://github.com/user-attachments/assets/a1b932e2-bb78-4c8d-8a4d-91228131fd63)
+
+![image](https://github.com/user-attachments/assets/edde540e-503b-4c9d-bac8-0f1fda461c45)
+
+![image](https://github.com/user-attachments/assets/00728651-16f3-4ee1-8d7b-bafe61577045)
+
+![image](https://github.com/user-attachments/assets/cf56a595-5694-4b75-9904-7b59132b5ae9)
+
+![image](https://github.com/user-attachments/assets/72818d92-7dd9-465c-8cdb-6fbd78ffa03a)
